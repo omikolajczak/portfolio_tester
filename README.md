@@ -25,4 +25,4 @@ E-mail: oemikoljaczak@gmail.com
 
 ### ⚙️ **Technologia**
 ### ⚙️ **Kursy i szkolenia**
-#### ⚙️ **Książki**
+#### 📚 **Co czytam**
